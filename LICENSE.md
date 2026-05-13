@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with rare blur sniper bot | private-RPC-nodes + auto-sell. Featuring private-RPC-nodes and auto-sell, it's the best choice for automated NFT
 
 
 
